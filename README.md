@@ -1,5 +1,5 @@
 # tkvm-nhapmon-nhom06
 Bài nhiệm vụ nhóm <br> 
-Họ và tên : Trương Hữu Thạnh  <br>
-MSSV 25161106  <br>
-Giới thiệu : em 18 tuổi , cao to , đẹp trai body 6 múi , fan chị Linda . <br>
+Họ và tên : Lý Hồng Phát  <br>
+MSSV 25161173  <br>
+Giới thiệu : em 18 tuổi , độc thân, vui tính, đặc biệt mê mấy em chân dài <br>
